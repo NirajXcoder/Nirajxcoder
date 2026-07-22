@@ -1,16 +1,16 @@
-## Hi there 👋
+# 💫 Hi 👋, I'm Niraj x coder
 
-<!--
-**NirajXcoder/Nirajxcoder** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Email Me 👉 ✉️ **nirajverma9884@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-Here are some ideas to get you started:
+- 🔭 **I’m currently working on:** online Exam proctoring system 
+- 🌱 **I’m currently learning:** 
+- 👯 **I’m looking to collaborate on:** 
+- 🤔 **I’m looking for help with:** 
+- 💬 **Ask me about:** Collaboration, Tech Support
+- 📫 **How to reach me:** nirajverma9884@gmail.com
+- 😄 **Pronouns:** Niraj x coder
+- ⚡ **Fun fact:** I Love Tech and Tech Love Me
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## 🔗 I am a Content Creator. 😊😊
+
+Stay updated with the latest tutorials and projects by subscribing to following on Instagram,
